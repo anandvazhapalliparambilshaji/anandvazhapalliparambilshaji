@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anandvs
 - 👀 I’m interested in Data Analytics and Business Intelligence
-- 🌱 MSC. Data Analytics from IIITM-K
+- 🌱 MSC. Data Analytics fresher from IIITM-K
 - 💞️ I’m looking for employment Opportunities
 - 📫 How to reach me through email anandvshaji@gmail.com
 
